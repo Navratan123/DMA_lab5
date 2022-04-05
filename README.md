@@ -1,1 +1,5 @@
-![video](shop.gif)
+![ss](l5shopping3.jpg)
+![ss](l5shopping5.jpg)
+![ss](l5shopping4.jpg)
+![ss](l5shopping2.jpg)
+![ss](l5shopping1.jpg)
