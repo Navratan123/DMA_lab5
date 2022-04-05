@@ -1,1 +1,2 @@
-![task2](ta2.gif)
+![ss](l5twoactivities2.jpg)
+![ss](l5twoactivities22.jpg)
